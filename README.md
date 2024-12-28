@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **dandanayaksaiprabhu365@gmail.com**
 
-- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/1AZTTyoq-lC_Mpa1VUEQOWR4VbJlnZ_V5/view?usp=sharing)
+- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/1BdxODLx0tzyhTeCZYw3cOeJbYEVglQ-9/view?usp=sharing)
 
 
 ## 🌐 Socials:
